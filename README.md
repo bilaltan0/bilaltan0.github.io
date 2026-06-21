@@ -1,1 +1,1 @@
-# bilaltan0.github.io
+google.com, pub-7650437807511951, DIRECT, f08c47fec0942fa0
